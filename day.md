@@ -30,4 +30,6 @@
 
 - Dinner and family time.
 
+- Make lunch for next workday.
+
 - A few hours for classes, personal reading and or downtime. 
