@@ -6,9 +6,9 @@
 
 2 Shower and prep for the day.
 
-3 Leave for work at 6:00.
+3 6:00 morning commute.
 
-4 6:20 - 6:50 Have the office to myself for prep and planning. AKA "Me time!"
+4 6:20 - 6:50 Have the office to myself for prep and planning. AKA *"Me time!"*
 
 5 6:50 - 7:15 Daily COVID screening Mixed-in w/bit of walking for execise.
 
@@ -26,7 +26,7 @@
 
 - Arrived home between 4:30-5:30.
 
-- Possible quick bike ride around the neigherhood for short execise.
+- Possible quick bike ride around the neighborhood for short execise.
 
 - Dinner and family time.
 
