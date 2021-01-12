@@ -8,7 +8,7 @@
 
 3 Leave for work at 6:00.
 
-4 6:20 - 6:50 Have the office to myself for prep and planing. AKA "Me time!"
+4 6:20 - 6:50 Have the office to myself for prep and planning. AKA "Me time!"
 
 5 6:50 - 7:15 Daily COVID screening Mixed-in w/bit of walking for execise.
 
