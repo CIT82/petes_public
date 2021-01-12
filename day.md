@@ -18,7 +18,7 @@
 
 1 8:30 - 4:00 process, review, placed and recieve. Repete!!!
 
-2 Seek in a little class time between breaks and lunches.
+2 Sneak in a little class time between breaks and lunches.
 
 ## Post 4 PM.
 
